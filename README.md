@@ -2,3 +2,4 @@
 ## uma missão para salvar a humanidade em um planeta transformado
 ### Após um apocalipse nuclear, a humanidade vive em uma estação espacial que está ficando sem oxigênio. Para testar se o planeta voltou a ser habitável, os governantes enviam 100 jovens criminosos de volta à Terra. Ao chegarem, eles descobrem que o planeta não está deserto, mas sim habitado por tribos primitivas e violentas de sobreviventes. A partir daí, o grupo precisa lutar diariamente pela vida em uma sequência de guerras brutais por recursos, enfrentando novos fins do mundo por radiação, inteligências artificiais perigosas e, eventualmente, precisando abandonar a Terra para buscar a sobrevivência da raça humana em outros planetas do universo.
 ![hkik](https://media1.tenor.com/m/ze7l3cF6oe8AAAAC/the100-the1001x01.gif)
+[cfyglin](https://m.youtube.com/watch?v=k3LKuXgfWMw&pp=ygUSb2N0aXZpYSBhbmQgbGluY29u)
